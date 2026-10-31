@@ -1,0 +1,1 @@
+SLW Journal Artwork
